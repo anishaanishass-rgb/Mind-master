@@ -1,0 +1,2 @@
+# Mind-master
+THE EDUCATIONAL GUIDE
